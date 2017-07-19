@@ -1,2 +1,2 @@
 # Written-Examination-Exercise
-пёуп╠ййта╥о╟
+Ф═║Ф▀⌡Г╛■Х╞∙И╒≤Г╩┐Д╧═
