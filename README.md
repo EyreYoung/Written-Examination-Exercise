@@ -1,1 +1,2 @@
 # Written-Examination-Exercise
+–£’–±  ‘¡∑œ∞
